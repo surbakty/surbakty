@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **react**
 
-- 📫 How to reach me **peliksurbakty13gmail.com**
+- 📫 How to reach me **peliksurbakty13@gmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/peliks/](https://www.linkedin.com/in/peliks/)
 
